@@ -6,9 +6,9 @@ _tl;dr_ To fully come alive *before* you are completely dead and gone, to offer 
 
 What -> to come fully alive  
 Why -> before you are going to be completely dead and gone, very soon  
-Who -> ask others who have already have been there, done it!  
-How -> Start with introducing stillness into your life for   20min -> impact the rest of 23.40 hours of the day   
-When -> first thing in the morning  
+Who -> ask the *enlightened* ones, who already have been there and done it!  
+How -> Start with maintaining absolute stillness in your life for 20min -> when done right and with your patience, you will see it positively life up the rest of 23.40 hours of the day   
+When -> first thing in the morning, at 4am or at the break of dawn  
 Which -> Focus on one thought at a moment; focus on one thing and only thing at a time!   
 
 And by the way, what is the purpose of life? 
